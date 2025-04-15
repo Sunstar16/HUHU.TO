@@ -1,2 +1,2 @@
-# HUHU.TO-
-Live TV section of HUHU.TO offers diverse array of international television channels, providing users with access to live broadcasts from various countries and genres.
+# HUHU.TO
+The live TV section of HUHU.TO offers a diverse array of international television channels, providing users with access to live broadcasts from various countries and genres. The platform organizes its content by country, featuring channels from regions such as Albania, Germany, and the Balkans. Examples include "TOP CHANNEL FHD" from Albania, "BLUETV MARVEL HD" from Germany, and "FOOT+ 24/24," which likely focuses on continuous sports.
